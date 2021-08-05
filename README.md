@@ -1,1 +1,3 @@
-Hi, I’m @maxloge, I studied Physics and ❤️ AI.
+Hi, I’m @maxloge, 
+
+I studied Physics and I ❤️ AI.
